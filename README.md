@@ -1,2 +1,0 @@
-# Fomalasa
-Página de Fomalasa 
